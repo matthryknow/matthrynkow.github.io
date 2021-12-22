@@ -10,4 +10,7 @@ date: 2021-07-05
 ###### But I do need to learn html _STAT_
 And maybe some design stuff too.
 > the end 
+
+JK. Got some more to say
+It seems like if one is a good stoic, they're more likely to die alone
 ***
